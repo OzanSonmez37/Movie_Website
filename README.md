@@ -1,1 +1,1 @@
-![Uploading FireShot Capture 482 - Film Sitesi - [127.0.0.1].png…]()
+![Image](https://github.com/user-attachments/assets/58dc1318-b5d9-4420-b588-504dca819179)
